@@ -11,4 +11,4 @@ meu nome é Pedro
 luizsilva.pedro3004g@gmail.com
 
 
-![](https://media1.tenor.com/m/r0R0N3dI3kIAAAAd/dancing-cat-dance.gif)
+![](https://media1.tenor.com/m/MuZoNQMrfcgAAAAd/linda-morena.gif)  ![](https://media1.tenor.com/m/HQrTdqoTF9YAAAAC/strong-woman-lea-schreiner.gif)
